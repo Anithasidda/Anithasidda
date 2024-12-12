@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... c 
 - 💞️ I’m looking to collaborate on ... ANYTHING
 - 📫 How to reach me ... In college
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... THINGS
 - ⚡ Fun fact: ...   A song that gets stuck in your haed is called an earworm
 
 <!---
