@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Anitha
 - 👀 I’m interested in ...  LISTENING MUSIC
-- 🌱 I’m currently learning ... B.Tech
+- 🌱 I’m currently learning ... c 
 - 💞️ I’m looking to collaborate on ... ANYTHING
 - 📫 How to reach me ... In college
 - 😄 Pronouns: ...
